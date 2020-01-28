@@ -45,17 +45,17 @@
                 b) <a target="_blank"  href="https://www.bilibili.com/video/av71416228" >【暴躁解说】这部抗日神剧，让你知道什么叫做猪队友！</a>
                 c) <a target="_blank"  href="https://www.bilibili.com/video/av64430454" >【前方高能】史上最最欠揍的电话推销员，有本事顺到电话线来打我呀！</a>
     <hr/>
-    <b>1. 竞争对手 - 普通参考:</b>
+    <b>2. 竞争对手 - 普通参考:</b>
             a) 電影劉油果:
             1. YouTube: <a target="_blank" href="https://www.youtube.com/channel/UCGXajHevkI2fn19NLBi9hcQ" >https://www.youtube.com/channel/UCGXajHevkI2fn19NLBi9hcQ</a>
             2. B站: 等待更新
     <hr/>
-    <b>2. 竞争对手 - 反面参考:</b>
+    <b>3. 竞争对手 - 反面参考:</b>
             a) 小兔说电影:
             1. YouTube: <a target="_blank" href="https://www.youtube.com/channel/UCnwltlmXZxspTkPKB_djtbw" >https://www.youtube.com/channel/UCnwltlmXZxspTkPKB_djtbw</a>
             2. B站: 等待更新
     <hr/>
-    <b>3. 注意细节:</b>
+    <b>4. 注意细节:</b>
             a) 尽量多运含正能量一句带过最好:
                1.参考案例 <a target="_blank" href="https://www.youtube.com/watch?v=Bw1AOTDhkZ4" >運氣論：買彩票必中頭獎？聽起來太扯，平行宇宙理論卻這樣說「曉涵哥來了」</a>
             b) 把每一个作品都要打造好, 不要只认为发得作品越多粉丝越多, 高质量才是王道，如果质量高并且数量也跟得上，粉丝多是必然的, 说白了"走好自己的每一步":
